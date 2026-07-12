@@ -1,12 +1,13 @@
 ![](18303ddb424b4be3dc1ee46bdfc052ae.gif)
 
-HIIII, I'M "GLOW" ^^
+ᴴᴵᴵᴵᴵ, ᴵ'ᴹ "ᴳᴸᴼᵂ" ^^
 
-SHE / ANY!!
+ˢᴴᴱ / ᴬᴺʸ!!
 
-KSA", ENFJ-T
+ᴷˢᴬ", ᴱᴺᶠᴶ⁻ᵀ
 
-Talking to people is fun!!
+ᵀᵃˡᵏⁱⁿᵍ ᵗᵒ ᵖᵉᵒᵖˡᵉ ⁱˢ ᶠᵘⁿ!!
+
 
 
 
